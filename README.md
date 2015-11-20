@@ -4,3 +4,4 @@ I'm hoping to spend some time on this daily for the next few weeks (maybe months
 
 Daily Updates:
 - Day 1 (11/18/2015): Made a male character similar to something you might see in South Park
+- Day 2 (11/19/2015): Spent a lot of time trying to first make hair, and then design a cap. After several failed attempts, I decided to just make something that looks like a Kippah/Taqiya.
